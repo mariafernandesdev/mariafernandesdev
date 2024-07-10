@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the automation and improvement in profits for microentrepreneurs
 - 📫 How to reach me: callme or send a email
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I like madicine, but my pleeace is here
+- ⚡ Fun fact: I love all this, my pleeace is here!
 
 <!---
 mariafernandesdev/mariafernandesdev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
